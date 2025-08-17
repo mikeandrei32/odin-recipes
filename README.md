@@ -1,1 +1,1 @@
-Recipes for my favorite food Beef Broccoli
+Recipes for my favorite foods Beef Broccoli, Chicken Adobo, Cordon Bleu
